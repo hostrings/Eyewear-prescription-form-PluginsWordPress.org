@@ -43,7 +43,7 @@ You get free-updates for 6 months continuously.
 
 Just install it and enable it to help your customers choose the eye wear they want to buy.
 
-You can buy WordPress EYE Glasses and Lenses Prescription plugin from SoftProdigy Store to setup your online eyewear store.
+You can buy WordPress EYE Glasses and Lenses Prescription plugin from Hostrings Store to setup your online eyewear store.
 
 For any queries Call us @ +92 333 238 1098, +92 300 924 7011
 Visit our E store and browse other plugins/extensions as well : https://www.hostrings.com/store/
