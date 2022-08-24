@@ -46,6 +46,6 @@ Just install it and enable it to help your customers choose the eye wear they wa
 You can buy WordPress EYE Glasses and Lenses Prescription plugin from Hostrings Store to setup your online eyewear store.
 
 For any queries Call us @ +92 333 238 1098, +92 300 924 7011
-Visit our E store and browse other plugins/extensions as well : https://www.hostrings.com/store/
+Visit our E store and browse other plugins/extensions as well : https://www.hostrings.com/
 
 #eyeglassesplugin #woocommerce eyeglasses prescription plugin #contactlensesplugin #woocommerceeyeglassesprescriptionplugin #wordpressplugin #woocommerceplugin #softprodigy #ecommerce #opticalstore #onlinebusiness #makemoney #earnmoney #buyplugin #startonlinestore #opticalbusiness #plugins #wordpress #woocommerce #magento #extentions #prescriotionplugins #wordpressprescriptionplugins #onlineplugins #eyewearstore #eyewearplugins #eyelens #contactlens #eyeglasses #sell #earn #digital #webdevelopment #Ecommerce
